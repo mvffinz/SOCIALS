@@ -1,8 +1,7 @@
-![bcad96d9](https://github.com/user-attachments/assets/b2676d37-fc78-47b6-a000-384d2721af33)
-
+![tumblr_1f990153573df1cfb7c1dff996d8ca2c_c73c67b1_540](https://github.com/user-attachments/assets/42c98626-eadf-4cc0-bd0a-86e0016b2a67)
 
 ⊹  [Retrospring](https://retrospring.net/@mvffinz) ⊹
 
 ⊹  [Pronouns Page](https://en.pronouns.page/@mvffinz) ⊹
 
-![bcad96d9](https://github.com/user-attachments/assets/9ad6dfed-7ff7-4366-bf35-233da9497878)
+![tumblr_1f990153573df1cfb7c1dff996d8ca2c_c73c67b1_540](https://github.com/user-attachments/assets/79b7207d-9c47-4698-aa14-89baa42ec248)
